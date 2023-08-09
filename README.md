@@ -1,1 +1,1 @@
-# JP-Morgan-Chase-Co-Virtual-Software-Engineering-Internship
+# JP-Morgan-Virtual-Software-Engineering-Internship
